@@ -1,28 +1,28 @@
 #Homework 1, task 1
 
 Раскройте скобки, употребляя глаголы в Present Continuous или в Present Simple.
-1.	Your mum is working today?
+1.	Is your mum  working today?
 2.	Why are this boys to talking now?
-3.	Where is he to lives?
-4.	Their mother cooks very well?
-5.	Lili is not rich, she is  not to drives a Mercedes.
+3.	Where does he  live?
+4.	Is their mother cooks very well?
+5.	Lili is not rich, she doesn't drive a Mercedes.
 6.	Let´s go out. It is not raining now.
 7.	I have to go now. It is getting dark
 8.	A young man usually stands at the window.
 9.	Ann usually makes doll dresses herself.
-10.	His wife having coffee at the moment?
+10.	Is his wife having coffee at the moment?
 11.	Let’s go for a walk. It is not raining.
 12.	Look! The boys are coming home.
 13.	Maila likes Chinese food?
-14.	My grandmother is not to work. She is on pension.
+14.	My grandmother doesn't work. She is on pension.
 15.	What is your brother watching now?
-16.	Where are you live?
-17.	Are You  play the piano well?
+16.	Where do you live?
+17.	Do You  play the piano well?
 18.	Where is their brother swimming now?
 19.	What are they to eat at breakfast?
 20.	Are They  swimming at the moment?
 21.	Mike is not wearing a tie today.
-22.	Maila is not to watch TV every morning.
+22.	Maila doesn't watch TV every morning.
 23.	Listen! Blanca is singing in the bathroom.
 24.	Bea  sometimes reads comics.
 
