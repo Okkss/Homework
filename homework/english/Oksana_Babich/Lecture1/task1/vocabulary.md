@@ -9,3 +9,12 @@ He's developing new chatbot.
 She disables this platform.
 He had to disconnect the main group.
 We need to display a new progress in our group.
+He can enables new keys.
+My chatbot executes new commands.
+I can implement this system at work.
+Do you may install this program?
+I restore this files.
+He uninstall old programs.
+Can you update this system?
+I upgrading this system these days.
+Can you verify my program?
